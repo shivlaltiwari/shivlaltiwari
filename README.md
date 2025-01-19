@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://shivlaltiwari.github.io/shivaportfolio.github.io/](https://shivlaltiwari.github.io/shivaportfolio.github.io/)
 
-- 📫 How to reach me **st172239@gmail.com**
+- 📫 How to reach me **tiwarishivlal03@gmail.com | st172239@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
